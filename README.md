@@ -5,3 +5,5 @@
 [AI's role in Chip design] (https://www.linkedin.com/posts/srinipanapakam_princeton-engineering-ai-slashes-cost-and-share-7382577210538438656-mVzJ/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAAWRz4BFM_-nxlv_Q0Fm6_Ccv67KVAXj3Y)
 
 [Artificial General Intelligence - How far are we] (https://www.linkedin.com/posts/srinipanapakam_agi-asi-agi-share-7421024104822267904-duta/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAAWRz4BFM_-nxlv_Q0Fm6_Ccv67KVAXj3Y)
+
+[A peep into the world of wearable electronics] (http://forum.eetindia.co.in/BLOG_ARTICLE_18902.HTM?jumpto=view_welcomead_forum_1388701674401)
