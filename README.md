@@ -6,4 +6,3 @@
 
 [Artificial General Intelligence - How far are we] (https://www.linkedin.com/posts/srinipanapakam_agi-asi-agi-share-7421024104822267904-duta/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAAWRz4BFM_-nxlv_Q0Fm6_Ccv67KVAXj3Y)
 
-[A peep into the world of wearable electronics] ([http://forum.eetindia.co.in/BLOG_ARTICLE_18902.HTM?jumpto=view_welcomead_forum_1388701674401](https://media.licdn.com/dms/image/v2/C562DAQEvsSejEEdPag/profile-treasury-document-images_1920/profile-treasury-document-images_1920/1/1584219809525?e=1781136000&v=beta&t=fz65GQw_c907OVPMeZVBH6c2oYf2RNuU00waKXQe0UI)
