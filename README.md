@@ -1,2 +1,2 @@
 # My-articles-and-blogs
-# My-thoughts-on-various-things-depends-on-my-mood-one-day-it-may-be-ai-and-next-it-might-be-sports
+# My thoughts on various issues depending on my mood. One day it may be ai and next day it might be sports
