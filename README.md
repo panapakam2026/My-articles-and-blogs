@@ -6,3 +6,4 @@
 
 [Artificial General Intelligence - How far are we] (https://www.linkedin.com/posts/srinipanapakam_agi-asi-agi-share-7421024104822267904-duta/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAAWRz4BFM_-nxlv_Q0Fm6_Ccv67KVAXj3Y)
 
+[My Thoughts on Larry Ellison's key note in Oracle AI World 2025] (https://www.linkedin.com/posts/srinipanapakam_aiworld-aitransformation-oracle-share-7385830745568661504-vNcl/?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAAWRz4BFM_-nxlv_Q0Fm6_Ccv67KVAXj3Y)
